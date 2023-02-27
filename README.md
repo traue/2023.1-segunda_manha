@@ -6,7 +6,7 @@ Turma 22 - 2ª e 5ª manhã
 
 **E-mail:** thiago.traue@uni9.pro.br
 
-**Classroom:** EM BREVE
+[Classroom da disciplina](https://classroom.google.com/c/NTkzODczOTE2MzI3?cjc=le7bzz4)
 
 ---
 
