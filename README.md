@@ -4,8 +4,6 @@ Turma 22 - 2ª e 5ª manhã
 
 **Prof. Thiago G. Traue** (thiago.traue@uni9.pro.br)
 
-**E-mail:** thiago.traue@uni9.pro.br
-
 [CLASSROOM DA TURMA](https://classroom.google.com/c/NTkzODczOTE2MzI3?cjc=le7bzz4)
 
 ---
